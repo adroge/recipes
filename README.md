@@ -80,15 +80,14 @@ Then add the following:
 - Olive Oil
 - Water
 
-Continually do the following until the dough is a smooth cohesive mass that does not stick to the bowl or the mixer parts.
-Add 1 tablespoon of water if the dough is too try
-Add 1 tablespoon of flour if the dough is too sticky
+Continually do the following until the dough is a smooth cohesive mass that does not stick to the bowl or the mixer parts:
+
+- Add 1 tablespoon of water if the dough is too try
+- Add 1 tablespoon of flour if the dough is too sticky
 
 Grease a bowl with olive oil. To conserve oil, you can use your fingers to spread it around.
 
-Shape dough into a ball.
-
-Place dough in the greased bowl and cover with plastic wrap. Let the dough rise for an hour.
+Shape dough into a ball, place it in the greased bowl, and cover with plastic wrap. Let the dough rise for an hour.
 
 30 minutes into the rising process, preheat the oven to highest setting. Usually 450°F - 500°F. This helps to ensure the oven is as warm as possible.
 
@@ -107,7 +106,8 @@ Cheese should be shredded mozzarella. Add just enough so you don't see the pizza
 Avoid adding overly watery topping - such as anything frozen, or certain types of tomatoes, or you will more likely end up with a wet pizza.
 
 Bake (Conventional oven):
-Bake 15-20 minutes at 500°F
-If the oven doesn't go that high (toaster oven), bake 20-25 minutes at 450°F instead.
+
+- Bake 15-20 minutes at 500°F
+- If the oven doesn't go that high (toaster oven), bake 20-25 minutes at 450°F instead.
 
 The pizza is usually done when the cheese starts to brown.
