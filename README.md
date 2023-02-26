@@ -50,7 +50,7 @@ Put the following in a huge bowl:
 14. add pasta to bowl
 15. add the rest of the salad dressing in bowl and mix
 
-Eat after letting sit for at least an hour. Will last for a few days if refrigerated.
+Can eat immediately. It will last for a few days if refrigerated.
 
 ## Pizza
 
