@@ -6,23 +6,23 @@
 
 ## Pasta Salad
 
-2 large cucumbers
-3 bell peppers - red/yellow/orange
-1 bunch of parsley
-1 box grape tomatoes
-1 small red onion
-3 cloves of garlic
+- 2 large cucumbers
+- 3 bell peppers - red/yellow/orange
+- 1 bunch of parsley
+- 1 box grape tomatoes
+- 1 small red onion
+- 3 cloves of garlic
 
-1 bag shredded parmesan cheese
-1 small mozzarella cheese - about the size of a fist
-1 bag dry salami or pepperoni
+- 1 bag shredded parmesan cheese
+- 1 small mozzarella cheese - about the size of a fist
+- 1 bag dry salami or pepperoni
 
-1 small can sliced Black olives
-1 small jar sliced Kalamata olives
-1 jar of sliced pepperoncini (optional)
-1 jar artichoke hearts
-1 bottle italian salad dressing
-1 bag rainbow spiral pasta (rotini)
+- 1 small can sliced Black olives
+- 1 small jar sliced Kalamata olives
+- 1 jar of sliced pepperoncini (optional)
+- 1 jar artichoke hearts
+- 1 bottle italian salad dressing
+- 1 bag rainbow spiral pasta (rotini)
 
 Steps:
 
