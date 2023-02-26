@@ -13,9 +13,13 @@
 - 1 small red onion
 - 3 cloves of garlic
 
+---
+
 - 1 bag shredded parmesan cheese
 - 1 small mozzarella cheese - about the size of a fist
 - 1 bag dry salami or pepperoni
+
+---
 
 - 1 small can sliced Black olives
 - 1 small jar sliced Kalamata olives
