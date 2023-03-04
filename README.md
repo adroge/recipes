@@ -17,20 +17,20 @@
 
 - 1 bag shredded parmesan cheese
 - 1 small mozzarella cheese - about the size of a fist
-- 1 bag dry salami or pepperoni
+- 1 bag dry salami (or pepperoni)
 
 ---
 
 - 1 small can sliced Black olives
 - 1 small jar sliced Kalamata olives
-- 1 jar of sliced pepperoncini (optional)
-- 1 jar artichoke hearts
+- 1 jar of sliced pepperoncini
+- 1 jar artichoke hearts (in oil and vinegar dressing)
 - 1 bottle italian salad dressing
 - 1 bag rainbow spiral pasta (rotini)
 
 Steps:
 
-Boil pasta for 10 minutes, and rinse in cold water when done to stop it from cooking.
+Boil pasta for 10 minutes (or until done). Drain and then rinse with cold water to stop it from cooking.
 
 Put the following in a huge bowl:
 
@@ -50,7 +50,7 @@ Put the following in a huge bowl:
 14. add pasta to bowl
 15. add the rest of the salad dressing in bowl and mix
 
-Can eat immediately. It will last for a few days if refrigerated.
+It will last for a few days if refrigerated.
 
 ## Pizza
 
