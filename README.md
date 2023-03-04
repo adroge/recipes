@@ -34,7 +34,7 @@ Boil pasta for 10 minutes (or until done). Drain and then rinse with cold water 
 
 Put the following in a huge bowl:
 
-1. slice cucumbers to the size of the sliced black olives
+1. peel and then slice cucumbers to the size of the sliced black olives
 2. slice bell peppers to the size of the sliced black olives
 3. chopped parsley
 4. cut all tomatoes in half
